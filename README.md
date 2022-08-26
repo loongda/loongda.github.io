@@ -1,15 +1,12 @@
-<center>LONG, DA  
-  ==
-  
+**<center>LONG, DA**
+
   
 
-<center>Tel: +86 18694276826 | Email: loongda@foxmail.com  
-  --
+**<center>Tel: +86 18694276826 | Email: loongda@foxmail.com**
+
   
-  
-  
-<center>Address: 14-404, Jingxin Garden, Ordos, Inner Mongolia, 017010, China  
-  --
+
+**<center>Address: 14-404, Jingxin Garden, Ordos, Inner Mongolia, 017010, China**
 
   
 
