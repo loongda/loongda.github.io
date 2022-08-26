@@ -14,7 +14,7 @@
 
   
 
-Sep 2018 – Jun 2022 Beihang University School of Mechanical Engineering & Automation
+Sep 2018 – Jun 2022 **Beihang University, School of Mechanical Engineering & Automation**
 
   
 
@@ -100,7 +100,7 @@ Jan 2019 – May 2019 **Research on Electric Treadmill (Fengru Cup Creativity Fi
 
   
 
-Jul 2021 – Sep 2021 *Intelligent furniture engineer* Goertek Co., Ltd., China
+Jul 2021 – Sep 2021 *Intelligent furniture engineer*, Goertek Co., Ltd., China
 
   
 
