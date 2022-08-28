@@ -6,10 +6,6 @@
 
   
 
-## <center>Address: 14-404, Jingxin Garden, Ordos, Inner Mongolia, 017010, China 
-
-  
-
 **EDUCATION BACKGROUND**
 
   
